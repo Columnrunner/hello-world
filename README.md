@@ -2,4 +2,4 @@
 just another repository
 
 Hi folks,
-There is going to be a war! No time for pussy, get your ass prepared.
+There is going to be a war! Don't be pussies, get your asses prepared.
