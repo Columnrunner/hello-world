@@ -3,8 +3,6 @@
 Hi folks,
 There is going to be a war! Don't be pussies, get your asses prepared.
 
-I've added a new line man!
+I've added a new line man! modification on branch
 
-my edition
 
-myass
